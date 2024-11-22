@@ -1,1 +1,1 @@
-I'm a minor please don't sue me
+I'm a minor don't sue me
